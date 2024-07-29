@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ishwarya3105
 - 👀 I’m interested in java
 - 🌱 I’m currently learning GITHUB
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on  sk
 - 📫 How to reach me 912....
 - 😄 Pronouns: ...kuttima
 - ⚡ Fun fact: find job
